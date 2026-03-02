@@ -1,1 +1,0 @@
-# juragan-menang.sajad-saeedi.ca
